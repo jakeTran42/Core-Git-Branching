@@ -14,7 +14,7 @@ Normally Jake would have walked down Bleaker street, but today there was constru
 Being on time was not one of Jake’s specialities today would prove to be no different.
 As he moved slowly.
 As he walked behind the zoo he could see the trees and thick foliage growing above the heavy stone wall that ran behind the zoo; and hear the sounds of animals in the distance.
-Jake had heard the sound before, but today there was a new sound, sort of a cross between an angelic horn and an elephant’s trumpet. He stopped to listen and noticed a heavy wooden door in the zoo wall was ajar. The Zookeeper was very taken aback by Jake's action. 
+Jake had heard the sound before, but today there was a new sound, sort of a cross between an angelic horn and an elephant’s trumpet. He stopped to listen and noticed a heavy wooden door in the zoo wall was ajar. The Zookeeper was very taken aback by Jake's action.
 
 Normally Jake would leave well enough alone, but he was worried that an animal might escape.
 He stuck his head in the door, the color of the foliage was intense greens, browns and chartreuse, he called out for a zoo keeper but got no response.
